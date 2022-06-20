@@ -2,7 +2,7 @@
 
 > Trabalho no mundo da tecnologia a alguns anos, tenho experiência tanto em ciência tecnológica quanto de desenvolvimento.
 
-🔭 Estou trabalhando no meu projeto "CloudSeaks" que é uma empresa focada em segurança de informações. 
+🔭 Estou trabalhando no meu projeto "Earth Source" que é uma empresa focada em segurança de informações. 
 
 ----
 
